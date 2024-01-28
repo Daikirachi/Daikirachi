@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Daikirachi
+- 👀 I’m interested in CompSci and neurobiology
+- 🌱 I’m currently learning back-end development
+- 💞️ I’m looking to collaborate on personal projects
+- 📫 How to reach me @ACertainTypicalGod (tg)
+- 😄 Pronouns: any
+- ⚡ Fun fact: 1 isn't a prime number
